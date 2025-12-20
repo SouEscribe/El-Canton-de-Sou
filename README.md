@@ -1,2 +1,2 @@
-# El-Cant-n-de-Sou
+# El-Canton-de-Sou
 Sitio Oficial de Sou
